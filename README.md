@@ -1,16 +1,13 @@
-### Hi there 👋
+### Kẻ ăn hồn
 
-<!--
-**keanhon/keanhon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Kẻ ăn hồn - Nguồn gốc cổ thuật Rượu Sọ Người của Làng Đia Ngục
 
-Here are some ideas to get you started:
+Kẻ ăn hồn là bộ phim nói về nguồn gốc loại cổ thuật mang tên Rượu Sọ Người của Làng Địa Ngục thưở sơ khai. Thập Nương - cô gái áo đỏ mới là kẻ nắm giữ bí thuật luyện nên loại rượu sọ người chân chính có quyền lực mạnh nhất.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://ruousonguoi-keanhon.com/
+
+https://www.pinterest.com/keanhon0812/
+
+https://vimeo.com/user210965413
+
+https://www.youtube.com/channel/UCd2FTaYSBjTpomeRdWaZi4A
